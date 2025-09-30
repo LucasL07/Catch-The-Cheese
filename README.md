@@ -1,5 +1,5 @@
 # Catch-The-Cheese
-catch the cheese game. now on github ^_^
+catch the cheese game.
 
 this project was designed by 2 lovely girls, and without their art and design, Catch The Cheese would have never come to exist.
 
