@@ -28,7 +28,7 @@ even if it doesn't change your life at all.
 i write this strange and short letter hoping that you can find some meaning 
 
 
-among the hot stoves and falling soda cans,
+in this cute little game,
 
 
 and maybe catching the cheese at the end will mean something to you, as it does to me 
